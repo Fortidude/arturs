@@ -1,2 +1,1 @@
-arturs
-======
+Pusto ;)  zapraszam później
